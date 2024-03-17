@@ -10,3 +10,5 @@
 Shoukatali6467667/Shoukatali6467667 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+how much is the money to bed now I didn't see that one 😭😭 is the money 🤑 is the tiktok live please
+bad is the SMS is very good for iphone XR iphone to tv from phone to go back 
